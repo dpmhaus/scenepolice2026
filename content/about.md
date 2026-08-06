@@ -6,9 +6,9 @@ layout: about
 
 ![scene police](/images/sp-logo.png "scene police")
 
-International hardcore/punk label, formed in 1998 with a brief internmission 2003-2024 with 40 releases under its belt at that time. 
+International hardcore/punk label, with quality releases (Ligatures, Gebretter, Wasted, Sweet Teeth, Rad Skulls, The Mistakes & more) and loads to come (OFFCELL, Bazooka Zikrus, Petra Buchholz, R.C. Sullivan). Find all releases via the bandcamp site (via the merch tab).
 
-As the old Toten Hosen song depicts, "It started six years ago, it was like a revolution, goal and direction unknown, the old was burned down - we will go down with flags flying."
+Formed in 1998 with a brief internmission 2003-2024 with 40 releases under its belt at that time. As the old Toten Hosen song depicts, "It started six years ago, it was like a revolution, goal and direction unknown, the old was burned down - we will go down with flags flying."
 
 Owned and operated by DPM and the Metal Angel until 2003 (from 2024 onwards owned and operated by DPM); co-founded & operated by the Goit as the UK side of the label up until 2001. The label started out of the remnants of Revolution Inside (Guts Pie Earshot, Fluid To Gas, Drunk, Impact, Craving etc.) with music that was either too emo, pop-punky or noisy for the latter. Beginnings of the label can also be traced back to the HC & Punk Fanzine INTERPOL TIMES, published 1991 – 1999, also run by DPM and the Goit.
 
